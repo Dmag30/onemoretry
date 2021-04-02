@@ -1,2 +1,0 @@
-# onemoretry
-for my lessons
